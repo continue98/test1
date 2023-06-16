@@ -1,1 +1,1 @@
-[$continue$](github.com/continue98)
+[$continue$](https://github.com/continue98)
